@@ -1,1 +1,1 @@
-niettraan and nucy wish you have a nice day 😚
+niettraan wish you have a nice day 😚
